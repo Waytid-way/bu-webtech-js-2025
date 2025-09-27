@@ -1,0 +1,2 @@
+- Nickname: way way way high bro
+- Favorite Food: skdasopk
